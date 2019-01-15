@@ -10,4 +10,4 @@ chill.
 - Ik kom hier iets bij typen
 - Goed bezig, Katrien!
 
-[![Video]https://www.youtube.com/watch?v=jZu8FOKbg5g"
+https://www.youtube.com/watch?v=jZu8FOKbg5g
