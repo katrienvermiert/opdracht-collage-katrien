@@ -5,3 +5,7 @@ chill.
 
 
 2e poging
+
+- En ik ben Christophe
+- Ik kom hier iets bij typen
+- Goed bezig, Katrien!
